@@ -24,3 +24,9 @@ gravitational
 美[ˌɡrævɪˈteɪʃənl]   
 adj.	引力的; 重力引起的;   
 
+endeavour	英[ɪnˈdevə(r)]
+美[ɪnˈdevər]  
+n.	(尤指新的或艰苦的) 努力，尝试;  
+v.	努力; 尽力; 竭力;  
+
+
