@@ -18,7 +18,7 @@ Agreed.
 Correct.  
 
 ## 2019-05-13
->10 Ways to Ask How Someone Is
+### 10 Ways to Ask How Someone Is
 
 How are you?    
 How's it going?   
@@ -31,7 +31,7 @@ What's up?
 What's new?  
 What have you been up to lately?
 
->10 Ways to Say How You Are  
+### 10 Ways to Say How You Are  
 
 I'm fine, thanks. How about you?  
 Pretty good.  
