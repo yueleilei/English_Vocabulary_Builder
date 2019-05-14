@@ -57,7 +57,17 @@ It was the least I could do.
 Glad to help.  
 Sure!  
 Thank you.  
-  (use this when you ALSO have something to thank the other person for)  
+  (use this when you ALSO have something to thank the other person for) 
+
+### 5 Ways to Respnd to an Apology
+
+Than's OK.  
+It happens.  
+No problem.  
+Don't worry about it.  
+I forgive you.  
+
+
   
 
 
