@@ -44,3 +44,23 @@ Same as always.
 Not so great.  
 Could be better.  
 
+## 2019-05-13
+### 10 Ways to Respnd to "Thank You"
+
+Your're welcom.  
+No problem.  
+No worries.  
+Don't mention it.  
+My Pleasure.  
+Anytime.  
+It was the least I could do.  
+Glad to help.  
+Sure!  
+Thank you.  
+  (use this when you ALSO have something to thank the other person for)  
+  
+
+
+
+
+
