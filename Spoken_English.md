@@ -67,6 +67,16 @@ No problem.
 Don't worry about it.  
 I forgive you.  
 
+### 5 Ways to End a Conversation Politely  
+
+It was nice chatting with you.  
+Well, it's getting late.  
+Anyway, I should get going.  
+(formal) Sorry, but I'am afraid I need  to...
+I'm sorry to cut you off, but I actually gotta run.  
+
+
+
 
   
 
