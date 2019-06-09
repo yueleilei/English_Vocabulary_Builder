@@ -26,3 +26,38 @@ endeavour	英[ɪnˈdevə(r)]
 n.	(尤指新的或艰苦的) 努力，尝试;  
 v.	努力; 尽力; 竭力;  
 
+## 2019-06-09
+
+
+unintentionally  
+
+英[ˌʌnɪnˈtɛnʃənli]  美[ˌʌnɪnˈtɛnʃənəli] 
+
+ adv. 无意中; 
+
+
+[例句]I offended him quite *unintentionally.*
+
+我触犯了他完全是出于无心。
+
+
+
+rumors
+
+ rumors  英[ˈruːməz]  美[ˈrumərz] 
+
+
+ n.   谣言; 
+
+
+v.   谣传; 
+
+
+ [词典]  rumor的第三人称单数和复数; 
+
+
+[例句]I can say with confidence that such *rumors* were totally *groundless.*
+
+我可以肯定地说这样的谣言完全没有根据。
+
+ [其他] | 原型： [rumor](http://www.baidu.com/link?url=G2mV3KwVddi8UoWJhsrvivUQTp35KS-Ck4YMwvFDwtYhtbjqq1TthxrAZ1DfdK_p7xL3ulNqxRvB_VhjOaThdmjxz_Wl8qzO5DYkf3A47bG) 
