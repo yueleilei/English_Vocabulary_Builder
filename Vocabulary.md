@@ -62,7 +62,7 @@ v.   谣传;
 
  [其他] | 原型： [rumor](http://www.baidu.com/link?url=G2mV3KwVddi8UoWJhsrvivUQTp35KS-Ck4YMwvFDwtYhtbjqq1TthxrAZ1DfdK_p7xL3ulNqxRvB_VhjOaThdmjxz_Wl8qzO5DYkf3A47bG) 
 
-## 2019-06-09
+## 2020-07-07
 degration
 降级
 [例子] degration concepts
